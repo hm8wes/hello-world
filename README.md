@@ -1,2 +1,2 @@
 # hello-world
-A space for fugitive ideas
+I'm hm8wes currently typing from the Pacific Rim
